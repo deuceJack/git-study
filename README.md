@@ -1,1 +1,7 @@
-# Git no benkyo
+# Git no benalkjljwjkwwwydf
+
+
+qq
+sdfafa
+
+wfadfajfaiewjfaweifoaw
